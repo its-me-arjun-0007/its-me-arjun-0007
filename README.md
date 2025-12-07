@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br> MY NAME IS ARJUN <br>
+<br> I AM ARJUN (AKA ODIYAN) <br>
 
 🔹 Professional + Tech-Oriented
 
