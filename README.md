@@ -1,8 +1,6 @@
 # 💫 About Me:
 <br> MY NAME IS ARJUN <br>
 
-I Am A Freelancer Programmer
-
 🔹 Professional + Tech-Oriented
 
 "Programmer, Ethical Hacker, and Merchant Navy officer. Exploring the world through code and the ocean. Passionate about cybersecurity, Linux, and creating digital solutions."
